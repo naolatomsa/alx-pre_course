@@ -1,1 +1,1 @@
-Naol atomsa
+Naol atomsa bulti
